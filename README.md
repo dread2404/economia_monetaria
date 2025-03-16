@@ -1,1 +1,0 @@
-# Gustavo Mendonça Ortega
